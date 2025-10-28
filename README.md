@@ -17,6 +17,11 @@ Hello again. I am here to add in a second line. I am Haziq.
 something something normal, something something im ashton
 
 
-
 caden was here 6/7/1967
+
+hello im bryan uwu
+
+
+
+me again six seven six seven
 
